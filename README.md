@@ -1,2 +1,2 @@
 # JUNO / ALFRED / FANBOY !
-![Alt Tag](https://media.discordapp.net/attachments/1034964683565846549/1405326217569107968/bafkreidbey5cuzpijmexrkfiqe2ntkcnorbhygw6ubvki2rwgw2dcri75u.jpg?ex=689e6b87&is=689d1a07&hm=2a1a1ca27585dea30ed45e033b094030209a0a55d0cd4a411388cab46da531b0&=&format=webp&width=456&height=570)
+![Alt Tag](https://media.discordapp.net/attachments/1034964683565846549/1405342112672649276/Untitled101_20250813200734.png?ex=689e7a55&is=689d28d5&hm=c4259a6c193ea4f0a1b18180eefe51c8ca3e4ecdb4f730bfc8f5f992057ea04e&=&format=webp&quality=lossless&width=606&height=466)
