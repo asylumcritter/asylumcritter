@@ -6,4 +6,4 @@
 platonic flirter - only to close people
 ## transmasc  ,,  genderfawn  ,,  gay  ,,  ace  ,,  aromantic  ,,  demirom 
 ## idc who interacts unless ur doing illegal shit! i block FREELYYY
-## @2BD4MNED HAII OOMFIEE
+## [@2BD4MNED](https://github.com/2BD4MNED) HAII OOMFIEE
